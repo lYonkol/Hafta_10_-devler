@@ -1,0 +1,1 @@
+# Hafta_10_-devler
